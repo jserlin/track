@@ -1,3 +1,9 @@
+
+### Date 07
+- Without secrets, without the hoarding of knowledge and information, we can finally realize our potential.
+- 抛开秘密和信息的囤积，发现我们的潜力
+
+
 ### Date 07
 - When one's heart is overfilled with joy, some may spill from the eyes.
 - 心悦之巅，喜极而泣
